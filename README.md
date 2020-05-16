@@ -1,4 +1,4 @@
-# Prepare for Placement in only 100 days.
+# Prepare for Placement in 100+ days.
 
 ### Course Objective
 
