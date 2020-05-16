@@ -8,4 +8,5 @@ Campus placements season is going to begin at almost all the colleges and each o
 <b><em>I have planned this to prepare for Computer Science and IT sectors placements.</em></b> <br>
 
 <b>So if you accept this Challenge then you must have to do these 2 things: <br> <br>
-1.Make a Pledge to learn or practice everyday for the next 100 days. <br> 2.Join this telegram channel initiated by me.</b>
+1. Make a Pledge to learn or practice everyday for the next 100 days. <br> 2. Join this telegram channel initiated by me. <br>
+3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important) </b>
