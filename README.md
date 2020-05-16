@@ -7,6 +7,8 @@ But during the planning of this Curriculum I thought why to learn alone When I c
 Campus placements season is going to begin at almost all the colleges and each one of us wants to prepare to do the best.
 <b><em>I have planned this to prepare for Computer Science and IT sectors placements.</em></b> <br>
 
-<b>So if you accept this Challenge then you must have to do these 2 things: <br> <br>
-1. Make a Pledge to learn or practice everyday for the next 100 days. <br> 2. Join this telegram channel initiated by me. <br>
-3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important) </b>
+<b>So if you accept this Challenge then you must have to do these 2 things:<br><br>1. Make a Pledge to dedicate at least one hour of everyday towards coding and/or studying for the next 100 days.<br>2. Join this telegram channel initiated by me. <br>3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important) </b>
+<br>
+At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
+
+
