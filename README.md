@@ -15,5 +15,5 @@ At the outset, it is useful to clarify the interests within the field and the go
 These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> 
 
 ### Goals after joining the group
-To become consistent, focused, and achieve success. In a nutshell if you see yourself after 100 days, you will be proud of yourself.
+To become consistent, focused, and achieve success. In a nutshell if you will see yourself after 100 days, you will be proud of yourself.
 
