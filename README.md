@@ -1,6 +1,6 @@
 # Prepare for Placement in 100+ days.
 
-### Course Objective
+## Overview
 
 This is a challenge which is created by me for Myself to prepare for Placements within this year(i.e 2020 but it's not recommended that you must start this challenge from now only and finish it before 2020, you can start from any day but then you have to learn it/practice it for consecutive 100 days. <b>But start it before it's too late.</b> <br> <br> <b>Remember, 100days streak is our Goal.</b> <br> <br>
 But during the planning of this Curriculum, I thought about why to learn alone When I can learn together with other people! especially my batchmates of <b>IMSEC</b> And that's When this idea of making this as a challenge arose in my mind so other people who are thinking of preparing for placements since a long time but due to any reason they could not start it, can start now. And I Make this as a challenge so we take it seriously and give our precious time to learn daily for consecutive 100 days in a row. And also, The whole curriculum and all the links given below are Completely free. <br>
@@ -11,9 +11,13 @@ Campus placements season is going to begin at almost all the colleges and each o
 <br>
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
-### Why you should take this challenge? <br>
+## Why you should take this challenge? <br>
 These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> You will learn skills and can add them to your Resume.
 
-### Goals after joining the group
+## Goals after joining the group
 To become consistent, focused, and achieve success. In a nutshell if you will see yourself after 100 days, you will be proud of yourself.
 
+## Course Objective 
+The main objective of this course is to Learn or Practice for 100 Consecutive days. What are you learning is your choice.
+
+Note:You can make your own Curriculum also. The main goal behind this challenge is to be consecutive to learn/practice for 100 days
