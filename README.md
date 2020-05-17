@@ -12,7 +12,7 @@ Campus placements season is going to begin at almost all the colleges and each o
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
 ### Why you should take this challenge? <br>
-These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> 
+These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> You will learn skills and can add them to your Resume.
 
 ### Goals after joining the group
 To become consistent, focused, and achieve success. In a nutshell if you will see yourself after 100 days, you will be proud of yourself.
