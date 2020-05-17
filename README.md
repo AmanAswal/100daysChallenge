@@ -7,12 +7,12 @@ But during the planning of this Curriculum, I thought about why to learn alone W
 Campus placements season is going to begin at almost all the colleges and each one of us wants to prepare to do the best.
 <b><em>I have planned this to prepare for Computer Science and IT sectors placements.</em></b> <br>
 
-<b>So if you accept this Challenge then you must have to do these 2 things:<br><br>1. Make a Pledge to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.<br>2. Join this telegram channel initiated by me. <br>3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important) </b>
+<b>So if you accept this Challenge then you must have to do these 4 things:<br><br>1. Make a Pledge to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.<br>2. Join this telegram channel initiated by me. <br>3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important) </b>
 <br>
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
 ### Why you should take this challenge? <br>
-These 100 days will totally change you, your life, and your personality. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> 
+These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> 
 
 ### Goals after joining the group
 To become consistent, focused, and achieve success. In a nutshell if you see yourself after 100 days, you will be proud of yourself.
