@@ -49,7 +49,6 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 3. Best and free courses links (some with certificates also).
 4. Free Microsoft Student Partners Webinars with certification for attending.
 5. Updates about the Campus Ambassadors programs/internships.
-6. Our own coding competitions on Hacker Blocks ( Coding Blocks online practice tool).
 
 # I Will add the curriculum resources as soon as people start taking this challenge and joining the telegram group.  
 ## my advice: Start today. It's NOW OR NEVER.
