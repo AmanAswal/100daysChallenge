@@ -1,4 +1,4 @@
-# Prepare for Placement in 100+ days.🚀
+# Get success in 100+ days.🚀
 ![](images/1.jpg)
 ### Overview
 This is a challenge which is created by me for Myself to prepare for Placements within this year(i.e 2020 but it's not recommended that you must start this challenge from now only and finish it before 2020, you can start from any day but then you have to learn it/practice it for consecutive 100 days. <b>But start it before it's too late.</b> <br>
