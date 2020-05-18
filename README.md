@@ -52,3 +52,6 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 
 # I Will add the curriculum resources as soon as people start taking this challenge and joining the telegram group.  
 ## my advice: Start today. It's NOW OR NEVER. 😬
+
+
+<iframe src="https://giphy.com/embed/4QFcVnf41d2Lb5I0MK" width="480" height="400" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/tvland-tv-land-the-goldbergs-thegoldbergs-4QFcVnf41d2Lb5I0MK">via GIPHY</a></p>
