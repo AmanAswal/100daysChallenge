@@ -41,8 +41,7 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 1. Aptitude and Reasoning.
 2. Programming Language.
 3. Competitve Coding.
-4. Data Structures and Algorithms.
-5. <em>will update here later</em>
+4. Data Structures and Algorithms <em>and more...</em>
 
 
 
