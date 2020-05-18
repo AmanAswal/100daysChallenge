@@ -50,6 +50,10 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 4. Free Microsoft Student Partners Webinars with certification for attending.
 5. Updates about the Campus Ambassadors programs/internships.
 
+### Why to trust me?
+I am just a student who wants to empower every student. <br>
+Although you can check my linkedin profile to know my work and accomplishments https://www.linkedin.com/in/aman-singh-aswal-300396183/ .
+
 # I Will add the curriculum resources as soon as people start taking this challenge and joining the telegram group.  
 ## my advice: Start today. It's NOW OR NEVER. 😬
 
