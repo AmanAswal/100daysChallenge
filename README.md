@@ -38,5 +38,12 @@ The main objective of this course is to Learn or Practice for 100 Consecutive Da
 Note: You can make your own Curriculum also. The main goal behind this challenge is to be consecutive to learn/practice for 100 days.
 
 ## This Curriculum Includes the Following:
+1. Aptitude and Reasoning.
+2. Programming Language.
+3. Competitve Coding.
+4. Data Structures and Algorithms.
+5. <em>will update here later</em>
 
-# Will add the curriculum & resources as soon as people start taking this challenge.  
+
+
+##### Will add the curriculum & resources as soon as people start taking this challenge.  
