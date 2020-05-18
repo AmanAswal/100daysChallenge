@@ -16,7 +16,7 @@ At the outset, it is useful to clarify the interests within the field and the go
 
 ### Why you should take this challenge?🤔 <br>
 These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, I mean a lot.<br> You will learn skills and can add them to your Resume. <br>
-<b>Pre-requisite : 100% determination and will to start/change.</b>
+<b>Pre-requisite : 100% real determination and will to do.</b>
 
 ### Benefits of joining telegram group✨
 1. You can ask your doubts and queries anytime, we will solve it together.
