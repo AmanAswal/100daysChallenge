@@ -41,7 +41,7 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 1. Aptitude and Reasoning.
 2. Programming Language.
 3. Competitve Coding.
-4. Data Structures and Algorithms(<b>CRUX for getting placed</b>) <br><em>and more...</em>
+4. Data Structures and Algorithms(<b>CRUX for getting placement</b>) <br><em>and more...</em>
 
 ### Additional skills/things which I will provide you⚡️
 1. How to use Github or Git?
