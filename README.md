@@ -10,7 +10,7 @@ Campus placements season is going to begin at almost all the colleges and each o
 1. Make a Pledge to yourself😤 to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.
 2. Join this telegram channel initiated by me. https://t.me/imsecc  where we will help each other and solve queries.
 3. Share your daily progress in the group even if it's very less.
-4. Join LinkedIn (This is very important for us) </b>
+4. Join LinkedIn (This is a boon for us) </b>
 
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
