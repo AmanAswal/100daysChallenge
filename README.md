@@ -21,3 +21,5 @@ To become consistent, focused, and achieve success. In a nutshell if you will se
 The main objective of this course is to Learn or Practice for 100 Consecutive days. What are you learning is your choice.
 
 Note:You can make your own Curriculum also. The main goal behind this challenge is to be consecutive to learn/practice for 100 days
+
+# Will add the curicullam & resources as soon as people start taking this challenge.  
