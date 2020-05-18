@@ -48,7 +48,7 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 2. Free Coding Blocks online workshops.
 3. Best and free courses links (some with certificates also).
 4. Free Microsoft Student Partners Webinars with certification for attending.
-5. Updates about the Campus Ambassadors programs/internships.
+5. Updates about the Campus Ambassadors programs/internships. <br> <em>and more... </em>
 
 ### Why to trust me?👀
 I am just a student who wants to empower every student. <br>
