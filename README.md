@@ -58,7 +58,7 @@ Although you can check my linkedin profile to know my work and accomplishments h
 Just imagine, you got a job in a good company, you are so happy and your parents are more happy than you. All the money, time and trust they put in for you is not wasted. BUT wait! Are you working enough to make this imagination a real one? If NO, you should. Don't know how? Read everything about the challenge and join it. <br>
 Do something that will give you a great future. Develop a vision and work for it.
 
-#### If you missed the Telegram group link above, here it is 👉🏼: https://t.me/imsecc
+#### 👉🏼 If you missed the Telegram group link above, here it is 👉🏼: https://t.me/imsecc
 
 # I Will add the curriculum resources as soon as people start taking this challenge and joining the telegram group.  
 ## my advice: Start today. It's NOW OR NEVER. 😬
