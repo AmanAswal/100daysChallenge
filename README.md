@@ -8,7 +8,7 @@ Campus placements season is going to begin at almost all the colleges and each o
 <b><em>I have planned this to prepare for Computer Science and IT sector placements. And even if you want to learn in other domains, you can learn your stuff yourself.</em></b> <br>
 
 ### So if you accept this Challenge then you must have to do these 4 things:
-1. Make a Pledge to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.
+1. Make a Pledge to yourself to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.
 2. Join this telegram channel initiated by me. https://t.me/imsecc  where we will help each other and solve queries.
 3. Share your daily progress in the group even if it's very less.
 4. Join LinkedIn (This is very important for us) </b>
