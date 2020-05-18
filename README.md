@@ -15,7 +15,7 @@ Campus placements season is going to begin at almost all the colleges and each o
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
 ## Why you should take this challenge?🤔 <br>
-These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, a lot.<br> You will learn skills and can add them to your Resume. <br>
+These 100 days will totally change your life. You will be prepared for placements. And most importantly, you will explore & learn a lot, I mean a lot.<br> You will learn skills and can add them to your Resume. <br>
 <b>Pre-requisite : 100% determination and will to start/change.</b>
 
 ## Benefits of joining telegram group✨
