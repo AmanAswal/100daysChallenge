@@ -7,8 +7,12 @@ But during the planning of this Curriculum, I thought about why to learn alone W
 Campus placements season is going to begin at almost all the colleges and each one of us wants to prepare to do the best.
 <b><em>I have planned this to prepare for Computer Science and IT sector placements. And even if you want to learn in other domains, you can learn your stuff yourself.</em></b> <br>
 
-<b>So if you accept this Challenge then you must have to do these 4 things:<br><br>1. Make a Pledge to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.<br>2. Join this telegram channel initiated by me. https://t.me/imsecc  where we will help each other and solve queries.<br>3. Share your daily progress in the group even if it's very less.<br>4. Join LinkedIn (This is very important for us) </b>
-<br>
+### So if you accept this Challenge then you must have to do these 4 things:
+1. Make a Pledge to dedicate at least one hour of every day towards coding and/or studying for the next 100 days.
+2. Join this telegram channel initiated by me. https://t.me/imsecc  where we will help each other and solve queries.
+3. Share your daily progress in the group even if it's very less.
+4. Join LinkedIn (This is very important for us) </b>
+
 At the outset, it is useful to clarify the interests within the field and the goals which we want to achieve by engaging with the Telegram Group.
 
 ## Why you should take this challenge? <br>
@@ -25,7 +29,8 @@ These 100 days will totally change your life. You will be prepared for placement
 ## Goals after joining the group
 1. To become consistent, focused, and achieve success.
 2. To become <em>"Whatever you want to become"</em>. For e.g - competitive coder, Web Developer, Data Scientist etc.
- In a nutshell, if you will see yourself after 100 days, you will be proud of yourself.
+3. To be prepared for placements.
+In a nutshell, if you will see yourself after 100 days, you will be proud of yourself.
 
 ## Course Objective 
 The main objective of this course is to Learn or Practice for 100 Consecutive Days. What are you learning is your choice.
