@@ -61,3 +61,8 @@ Do something that will give you a great future. Develop a vision and work for it
 #### If you missed the Telegram group link above, here it is 👉🏼: https://t.me/imsecc
 
 <hr>
+## 1. Aptitude & Logical reasoning
+All the materials will be provided in the group only. Will practice there together.
+
+## 2. For Programming Language and DS-Algo
+https://date-with-code-v1.herokuapp.com/
