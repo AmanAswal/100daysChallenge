@@ -60,5 +60,4 @@ Do something that will give you a great future. Develop a vision and work for it
 
 #### If you missed the Telegram group link above, here it is 👉🏼: https://t.me/imsecc
 
-# I Will add the curriculum resources as soon as people start taking this challenge and joining the telegram group.  
-## my advice: Start today. It's NOW OR NEVER. 😬
+<hr>
