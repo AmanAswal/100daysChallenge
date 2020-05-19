@@ -52,7 +52,7 @@ Note: You can make your own Curriculum also. The main goal behind this challenge
 
 ### Why to trust me?👀
 I am just a student who wants to empower every student. <br>
-Although you can check my linkedin profile to know my work and accomplishments https://www.linkedin.com/in/aman-singh-aswal-300396183/ .
+Although you can check my linkedin profile to know my work and accomplishments [Linkedin](https://www.linkedin.com/in/aman-singh-aswal-300396183/)
 
 ### Motivation to join this challenge💪🏼
 Just imagine, you got a job in a good company, you are so happy and your parents are more happy than you. All the money, time and trust they put in for you is not wasted. BUT wait! Are you working enough to make this imagination a real one? If NO, you should. Don't know how? Read everything about the challenge and join it. <br>
