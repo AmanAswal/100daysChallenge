@@ -65,3 +65,6 @@ All the materials will be provided in the group only. Will practice there togeth
 
 ## 2. For Programming Language and DS-Algo
 (https://date-with-code-v1.herokuapp.com/)
+
+## 3. Competetive Coding
+We will solve coding questions on a daily basis in the group only.
