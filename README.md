@@ -67,4 +67,4 @@ All the materials will be provided in the group only. Will practice there togeth
 * [Date with code](https://date-with-code-v1.herokuapp.com/)
 
 ## 3. Competetive Coding
-We will solve coding questions on a daily basis in the group only.
+We will solve coding questions on a daily basis in the group only. 
